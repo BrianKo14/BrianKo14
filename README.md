@@ -4,4 +4,4 @@ My name is Brian Kovo. I like to build things! Check out [my resumé](https://br
 
 I'm currently working on putting out more of my projects here to the public. Have me some patience! 
 
-👉 How to reach me: [brian.ilank@gmail.com](mailto:brian.ilank@gmail.com)
+👉 How to reach me: [briankovo@gmail.com](mailto:briankovo@gmail.com)
